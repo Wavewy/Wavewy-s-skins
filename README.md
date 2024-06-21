@@ -5,4 +5,4 @@ here is the list of my osu! skins
 ![](https://i.imgur.com/a/DUweZts.png)
 
 # [Rafis but SZ](https://mega.nz/file/nldlHYBa#oEZflF9oFj2BnmV4y5O2Jgp8wDd4aqvONfO029zWd3c)
-![](https://i.imgur.com/JJzb9Jk.png)
+![](https://i.imgur.com/a/JJzb9Jk.png)
