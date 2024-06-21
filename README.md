@@ -1,4 +1,4 @@
-# Wavewy-s-skins
+# Wavewy's skins
 here is the list of my osu! skins
 
 # [Hayase Yuuka (worst hr player edit) v1.0](https://skins.osuck.net/api/skins/3322/download?v=0&t=2)
@@ -15,3 +15,10 @@ here is the list of my osu! skins
 
 # [Rafis HDDT (akolibed edit)](https://drive.google.com/file/d/1kR5SPyEJzT9mMEL9F0VuZLeo1naMSIhc/view)
 ![](https://files.osuck.link/images/skins/e87e110f4b6652dba712d5cdf1c4a202.webp)
+
+# [MonkoEdit](https://drive.google.com/file/d/1m5zptef-Cr5UXtXBdtu0LFrV_Sldb6hr/view)
+![](https://files.osuck.link/images/skins/ab358180380acd6b11f7def15b844b20.webp)
+
+# Mapping skin
+## [SILENCE PLAYER MAPPERING SKIN](https://wei44th.s-ul.eu/VDZQzM5V)
+![](https://osu.gatari.pw/ss/WNV91BKJ.jpg)
