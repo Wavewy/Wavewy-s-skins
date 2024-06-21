@@ -12,3 +12,6 @@ here is the list of my osu! skins
 
 # [Aristia(edit) + trail](https://drive.google.com/file/d/1aITP2lByLkO3Wa7grr1_1CS2ba0NpusT/view)
 ![](https://files.osuck.link/images/skins/f023275baf7f83b81ad25ad4d5ff7e9a.webp)
+
+# [Rafis HDDT (akolibed edit)](https://drive.google.com/file/d/1kR5SPyEJzT9mMEL9F0VuZLeo1naMSIhc/view)
+![](https://files.osuck.link/images/skins/e87e110f4b6652dba712d5cdf1c4a202.webp)
