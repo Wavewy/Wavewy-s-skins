@@ -26,7 +26,7 @@ here is the list of my osu! skins
 ## [SILENCE PLAYER MAPPERING SKIN](https://wei44th.s-ul.eu/VDZQzM5V)
 ![](https://osu.gatari.pw/ss/WNV91BKJ.jpg)
 
-## [SILENCE PLAYER MAPPERING SKIN](https://drive.google.com/file/d/1YaGFORws1VNJqlwWsavoBzUpoH90Jm_Z/view?usp=sharing)
+## [OWC skin remake](https://drive.google.com/file/d/1YaGFORws1VNJqlwWsavoBzUpoH90Jm_Z/view?usp=sharing)
 ![](https://i.ibb.co/mCz4Kw8/E74-E50-BB-4560-4-EC8-971-F-4-EDD8-A6-E4-A87.png)
 
 
