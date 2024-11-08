@@ -19,8 +19,15 @@ here is the list of my osu! skins
 # [MonkoEdit](https://drive.google.com/file/d/1m5zptef-Cr5UXtXBdtu0LFrV_Sldb6hr/view)
 ![](https://files.osuck.link/images/skins/ab358180380acd6b11f7def15b844b20.webp)
 
+# [WhiteCat 2.1 lite (Blue combo)](https://drive.google.com/file/d/1dYRD-l5tpfw2820mBs6bH1QuhzKv43r2/view?usp=sharing)
+![](https://files.osuck.link/images/skins/efca28a882f6e151e4bb40c572edbe14_md.webp)
+
 # Mapping skin
 ## [SILENCE PLAYER MAPPERING SKIN](https://wei44th.s-ul.eu/VDZQzM5V)
 ![](https://osu.gatari.pw/ss/WNV91BKJ.jpg)
+
+## [SILENCE PLAYER MAPPERING SKIN](https://drive.google.com/file/d/1YaGFORws1VNJqlwWsavoBzUpoH90Jm_Z/view?usp=sharing)
+![](https://i.ibb.co/mCz4Kw8/E74-E50-BB-4560-4-EC8-971-F-4-EDD8-A6-E4-A87.png)
+
 
 or just default osu! skin lol
