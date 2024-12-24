@@ -22,6 +22,9 @@ here is the list of my osu! skins
 # [WhiteCat 2.1 lite (Blue combo)](https://drive.google.com/file/d/1dYRD-l5tpfw2820mBs6bH1QuhzKv43r2/view?usp=sharing)
 ![](https://files.osuck.link/images/skins/efca28a882f6e151e4bb40c572edbe14_md.webp)
 
+# [not drain but emo](https://drive.google.com/file/d/1OUBVfpqxHnpzl7yChkcK14tZHjnrEUjL/view)
+![](https://clips-media-assets2.twitch.tv/K2YBlX5J1LqB-dvMQUGTRQ/AT-cm%7CK2YBlX5J1LqB-dvMQUGTRQ-preview-480x272.jpg)
+
 # Mapping skin
 ## [SILENCE PLAYER MAPPERING SKIN](https://wei44th.s-ul.eu/VDZQzM5V)
 ![](https://osu.gatari.pw/ss/WNV91BKJ.jpg)
