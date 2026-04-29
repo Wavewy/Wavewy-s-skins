@@ -10,7 +10,7 @@ here is the list of osu! skins that I might use:
 # [twitch.tvutsuloli (Shitteki Wavewy edit)](https://wavewy.s-ul.eu/cwecIKWG)
 ![](https://wavewy.s-ul.eu/5zsUX5Iq)
 
-# [Welter-azerinoo](https://wavewy.s-ul.eu/dJDA8duP)
+# [Welter-azerinoo](https://wavewy.s-ul.eu/7Qrnhfxq)
 ![](https://wavewy.s-ul.eu/dJDA8duP)
 
 # [scylla_ninerik](https://skins.osuck.net/skins/3418?v=0)
