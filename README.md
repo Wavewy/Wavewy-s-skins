@@ -1,10 +1,10 @@
 # Wavewy's skins
 here is the list of osu! skins that I might use:
 
-#[++scylla funny mix EPIC](https://wavewy.s-ul.eu/spRsVrqq)
+# [++scylla funny mix EPIC](https://wavewy.s-ul.eu/spRsVrqq)
 ![](https://wavewy.s-ul.eu/88QvXvqp)
 
-#[Aristiarz](https://wavewy.s-ul.eu/i9EntTiI)
+# [Aristiarz](https://wavewy.s-ul.eu/i9EntTiI)
 ![](https://wavewy.s-ul.eu/k9Et0pFu)
 
 # [scylla_ninerik](https://skins.osuck.net/skins/3418?v=0)
