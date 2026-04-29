@@ -10,14 +10,11 @@ here is the list of osu! skins that I might use:
 # [twitch.tvutsuloli (Shitteki Wavewy edit)](https://wavewy.s-ul.eu/cwecIKWG)
 ![](https://wavewy.s-ul.eu/5zsUX5Iq)
 
+# [Welter-azerinoo](https://wavewy.s-ul.eu/dJDA8duP)
+![](https://wavewy.s-ul.eu/dJDA8duP)
+
 # [scylla_ninerik](https://skins.osuck.net/skins/3418?v=0)
 ![](https://files.osuck.link/images/skins/439a8835003d20ca2c7fec0408f5125e.webp)
-
-# [Hayase Yuuka (worst hr player edit) v1.0](https://skins.osuck.net/api/skins/3322/download?v=0&t=2)
-![](https://i.ibb.co/4PmNLg8/worst-hr-player.jpg)
-
-# [Aristia(edit) + trail](https://drive.google.com/file/d/1aITP2lByLkO3Wa7grr1_1CS2ba0NpusT/view)
-![](https://files.osuck.link/images/skins/f023275baf7f83b81ad25ad4d5ff7e9a.webp)
 
 # [MonkoEdit](https://drive.google.com/file/d/1m5zptef-Cr5UXtXBdtu0LFrV_Sldb6hr/view)
 ![](https://files.osuck.link/images/skins/ab358180380acd6b11f7def15b844b20.webp)
